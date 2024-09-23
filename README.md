@@ -2,4 +2,4 @@
 Trabalho Prático: Introdução à Ciência dos Dados
 
  **Link da apresentação final:**
-https://drive.google.com/file/d/1fdFuUgh7VK71z45hc6JjauZDUn_kt8oC/view?usp=sharing
+https://youtu.be/RaG-b08M458
